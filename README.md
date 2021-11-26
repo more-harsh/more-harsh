@@ -6,7 +6,7 @@
 
 <br />
 
-## Sorry for the inconvenience.
+## Sorry for the inconvenience 😔
 
 <br />
 <br />
